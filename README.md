@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Asad Ali
-- 🌱 I’m currently learning pursuing CS FROM FAST ISLAMABAD
+- 🌱 I’m currently pursuing BS_CS FROM FAST ISLAMABAD
 - 😄 Pronouns: ASAD X...
 - ⚡ Fun fact: ...
 
